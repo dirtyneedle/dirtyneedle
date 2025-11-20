@@ -1,5 +1,4 @@
 <p align=center><img src=https://file.garden/aRtcHBnkRhEaeTV_/Graphics/wirewhite.png></p>
-<p align=center><i>You make me <a href><img src=https://file.garden/aRtcHBnkRhEaeTV_/Graphics/fuckingsick.png></a></i></p>
 <p align=center><img src=https://file.garden/aRtcHBnkRhEaeTV_/Graphics/syringe></p>
 <p align=center><img src=https://file.garden/aRtcHBnkRhEaeTV_/Graphics/natalieagainhoylfuck></p>
 <p align=center>20 ⚢ She</p>
